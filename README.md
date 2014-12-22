@@ -36,74 +36,34 @@ This keyboarded and encoded edition of the
 
 #####Body#####
 
-1. A Mappe of mans miſerie.
+1. ❧A premonition for euery diſpoſition:
+Publiſhed for the profit of all if it be well applied.
+By Charles Gybbon.
 
-    _ ¶Therfore do good whilſt ye may, remembring this ſaying.
+    _ A Mappe of mans miſerie.
 
-    _ ¶If thou dooſt conſider what inconueniences and euils be incident,
-and come oftentimes with proſperitie and riches, thou wouldeſt
-be better contented with thy poore eſtate.
+    _ A Mirror of Gods iustice.
 
-    _ ¶Therefore comfort thy ſelfe with theſe conſolations, remembring
-this ſaying:
-
-1. A Mirror of Gods iustice.
-
-    _ ¶Therfore do good whilſt ye may, remembring this ſaying.
-
-    _ ¶If thou dooſt conſider what inconueniences and euils be incident,
-and come oftentimes with proſperitie and riches, thou wouldeſt
-be better contented with thy poore eſtate.
-
-    _ ¶Therefore comfort thy ſelfe with theſe conſolations, remembring
-this ſaying:
-
-1. A mention of his mercie.
-
-    _ ¶Therfore do good whilſt ye may, remembring this ſaying.
-
-    _ ¶If thou dooſt conſider what inconueniences and euils be incident,
-and come oftentimes with proſperitie and riches, thou wouldeſt
-be better contented with thy poore eſtate.
-
-    _ ¶Therefore comfort thy ſelfe with theſe conſolations, remembring
-this ſaying:
+    _ A mention of his mercie.
 Our life we leade Gods lawes to learne, with will to do the ſame:We read to know, and know to liue, 
-    _ ¶Therfore do good whilſt ye may, remembring this ſaying.
-
-    _ ¶If thou dooſt conſider what inconueniences and euils be incident,
-and come oftentimes with proſperitie and riches, thou wouldeſt
-be better contented with thy poore eſtate.
-
-    _ ¶Therefore comfort thy ſelfe with theſe conſolations, remembring
-this ſaying:
-
-1. ❧A caueat for Rich-men:
+    _ ❧A caueat for Rich-men:
 Be rich in Faith.
 
-    _ ¶Therfore do good whilſt ye may, remembring this ſaying.
+      * ¶Therfore do good whilſt ye may, remembring this ſaying.
 
-    _ ¶If thou dooſt conſider what inconueniences and euils be incident,
-and come oftentimes with proſperitie and riches, thou wouldeſt
-be better contented with thy poore eſtate.
-
-    _ ¶Therefore comfort thy ſelfe with theſe conſolations, remembring
-this ſaying:
-
-1. ❧A comfort for Poore-men:
+    _ ❧A comfort for Poore-men:
 Be poore in Spyrite.
 
-    _ ¶Therfore do good whilſt ye may, remembring this ſaying.
-
-    _ ¶If thou dooſt conſider what inconueniences and euils be incident,
+      * ¶If thou dooſt conſider what inconueniences and euils be incident,
 and come oftentimes with proſperitie and riches, thou wouldeſt
 be better contented with thy poore eſtate.
 
-    _ ¶Therefore comfort thy ſelfe with theſe conſolations, remembring
+      * ¶Therefore comfort thy ſelfe with theſe conſolations, remembring
 this ſaying:
 
 #####Back#####
-A premonition for euery disposition published for the profit of all if it be well applied / by Charl
+AT LONDON
+Printed by I. C. for Thomas Gubbin. Anno. Dom. 1588.
 **Types of content**
 
   * There are 2 **verse** lines!
